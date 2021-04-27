@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Rani Gupta
 - 👀 I’m interested in dancing and painting
-- 🌱 I’m currently studying BTech
+- 🌱 I’m currently pursuing BTech
 - 📫 You can reach to me by email raniagrawal2001@gmail.com
 
 <!---
